@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer games and models
 - 🌱 I’m currently learning some interesteting things
 - 💞️ I’m looking to collaborate on the world
-- 📫 How to reach me :181 5408 5797 or 18154085797@163.com,I'm a chinese
+- 📫 How to reach me :181 5408 5797 or 18154085797@163.com,I'm Chinese
 
 <!---
 chengyile/chengyile is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
